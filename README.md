@@ -1,4 +1,5 @@
 # 🚀 Agentic AI SaaS Report: Agentic AI Security Mentor Platform
+<img width="1672" height="941" alt="ChatGPT Image Nov 9, 2026, 02_45_33 PM" src="https://github.com/user-attachments/assets/e3496368-703f-413b-a167-bcb2bd6ed8c6" />
 
 ---
 
